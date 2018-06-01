@@ -1,0 +1,1 @@
+# Nisan-Hatasi-Tespit-Simulasyonu
